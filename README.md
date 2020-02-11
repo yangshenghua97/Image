@@ -1,1 +1,1 @@
-# PicGo+Github图床不香吗
+# 白嫖PicGo+Github图床不香吗
